@@ -50,5 +50,7 @@ Currently completing my education and working toward a career in web development
 ## 📫 Let's Connect
 
 I'm interested in **entry-level web development opportunities, internships, and projects** where I can continue learning and contribute to a development team.
+Email: mashawn.rolfe00@gmail.com
+LinkedIn: www.linkedin.com/in/mashawn-rolfe
 
 Thanks for visiting my profile! 🚀
